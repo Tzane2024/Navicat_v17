@@ -1,5 +1,5 @@
 简体中文版（14天试用）下载：
-https://www.navicat.com.cn/download/direct-download?product=navicat17_mysql_cs_x64.exe&location=1
+https://www.navicat.com.cn/download/direct-download?product=navicat17_premium_cs_x64.exe&location=1
 
 # Navicat Premium Cracker (v17)
 
